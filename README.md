@@ -1,0 +1,4 @@
+- Hi, I’m @Eman-Idrees
+- I’m interested in graphic desiging,
+- I’m currently learning graphic designing and vedio editiing.
+- you can contact me on linkedin @Eman Idrees.
